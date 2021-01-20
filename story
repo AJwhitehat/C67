@@ -6,3 +6,4 @@ One day the wife was looking down at the garden from her window.  How fresh-look
 “But we cannot!” said the carpenter.  “You know as well as I do that the garden belongs to the witch, who lives next door.”
 
 “If I cannot have that lettuce,” said the wife, “I will not eat anything at all!  I will die!"
+The price says "I'll Come and save you my princess"
